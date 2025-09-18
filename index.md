@@ -9,7 +9,7 @@ title: "Sanjana Mehra — Portfolio"
 M.S. in Business Analytics (CSUEB, Expected May 2025). 8+ years delivering enterprise solutions and stakeholder alignment at Deloitte.  
 Open to **Project Management**, **Business Analyst**, and **Data Analyst** roles.
 
-[LinkedIn](#) · [GitHub](https://github.com/sanjanamehra20) · [Email](mailto:YOUR_EMAIL_HERE)
+[LinkedIn](https://www.linkedin.com/in/sanjana-mehra-1b421170/) · [GitHub](https://github.com/sanjanamehra20) · [Email](sanjanavmehra20@gmail.com)
 
 ---
 
